@@ -12,6 +12,6 @@ About Me
 Collaboration Opportunities
 💞 Collaboration: While I might not have specific projects in mind right now, I'm always open to exciting collaborations. If you have an idea or project you think I'd be interested in, please don't hesitate to reach out.
 Contact Me
-📫 How to Reach Me: Feel free to contact me through nishadnisha2001@gmail.com or connect with me on Linkedin [nishad-s-737654261]. I'm always eager to connect with fellow enthusiasts, so don't be shy!
+📫 How to Reach Me: Feel free to contact me through nishadnisha2001@gmail.com or connect with me on Linkedin nishad-s-737654261 . I'm always eager to connect with fellow enthusiasts, so don't be shy!
 Let's Connect
 Thank you for visiting my profile README! Let's connect, share ideas, and make the most of this incredible platform. 🚀
